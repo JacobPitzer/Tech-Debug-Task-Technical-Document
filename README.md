@@ -1,0 +1,1 @@
+# Tech-Debug-Task-Tecnical-Document
